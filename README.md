@@ -1,2 +1,2 @@
 # scaling-giggle
-juliasshahedboss@gmail.com
+juliasshahed@gmail.com
